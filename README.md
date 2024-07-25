@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...31222
 - 
 - 📫 How to reach me ...3131 111
-- 😄 Pronouns: ...
+- 😄 Pronouns: ...31 31 1
 - ⚡ Fun fact: ...
 111111111313131 13 1333 11
   22222 313
