@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...111
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...31222
-- 31
+- 313 13
 - 📫 How to reach me ...3131 111
 - 😄 Pronouns: ...31 31 13131
 - ⚡ Fun fact: ...13131
