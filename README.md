@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...111
 - 🌱 I’m currently learning ...12123
 - 313 13313
-- 📫 How to reach me ...3131 111
+- 📫 How to reach me ...3131 1111
 - 😄 Pronouns: ...31 31 13131
 - ⚡ Fun fact: ...13131
 111111111313131 13 1333 11
