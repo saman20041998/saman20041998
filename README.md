@@ -1,5 +1,4 @@
-- 👋 Hi, I’m @saman2004199811 3141
-- 👀 I’m interested in ...111
+11
 - 🌱 I’m currently learning ...12123
 - 313 13313
 - 📫 How to reach me ...3131 1111
